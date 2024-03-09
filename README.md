@@ -1,2 +1,2 @@
-## bt3gl's theorethical physics calculations
+## 🥼 bt3gl's theoretical physics calculations
 

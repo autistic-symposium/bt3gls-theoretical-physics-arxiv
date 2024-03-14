@@ -1,2 +1,2 @@
-## 🥼 bt3gl's theoretical physics calculations
+## 🥼 dr. mia stein's theoretical physics calculations
 

@@ -1,2 +1,2 @@
-## 🥼 dr. mia stein's theoretical physics calculations
+## bt3gl's theoretical calculations during her phd
 
